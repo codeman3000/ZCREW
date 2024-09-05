@@ -1,1 +1,7 @@
 THIS IS THE OPEN SOURCE CODE FOR https://nopqrstuvwxyz.xyz
+
+IF U WANT ACCESS AND U KNOW ME DM ME ON DISCORD
+
+FAQs:
+"WHATS UR DISCORD?" 
+Clearly u dont know me
